@@ -8,7 +8,7 @@ Free Discord Nitro Generator Website:
 Boost Bitro Generator  :  (Nitro Boost Generator Link) 
 https://b-generator.glitch.me/Index.html
 
-Classic Bitro Generator  :  (nitro classic generator link) 
+Classic Bitro Generator  :  (Nitro classic generator link) 
 https://b-generator.glitch.me/index0.html
 
 [REBORN] Discord Server Link: https://discord.gg/UHKhaQ4Ejs
